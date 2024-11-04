@@ -13,6 +13,4 @@ For those who have experienced the distress of a Bitcoin scam, Bitsquery Web Ret
 To start your recovery process, contact Bitsquery Web Retriever directly:
 
 Email: bitqueryretrieverhacker[@]bitquery[.]co[.]site
-WhatsApp: +1 202-773-9556
-Telegram: @Bitquerywebretriever
 Bitsquery Web Retriever is your trusted partner in navigating the challenges of Bitcoin recovery, helping victims reclaim their assets and find justice in the often-complex world of cryptocurrency.
